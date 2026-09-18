@@ -4,9 +4,9 @@
 Email Me 👉 ✉️ **infobablukumar1@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 🔭 **I’m currently pursuing Master of computer application:** 
-- 👯 **I’m looking to collaborate on AI ML project:** Enter your project name and info
+- 👯 **I’m looking to collaborate on AI ML project:** 
 - 💬 **Ask me about coding skill:** Collaboration, Tech Support
-- 📫 **How to reach me: infobablukumar1@gmail.com** Enter your email here
+- 📫 **How to reach me: infobablukumar1@gmail.com** 
 
 ## 🔗 I am a AI ML Enginner. 😊😊
 ## 🌐 Socials:
